@@ -2,7 +2,7 @@
 
 Perkenalkan nama saya **Ahmad Nasir**.
 
-Saya seorang **Android Developer** 
+Saya seorang **Android Developer & Software Developer** 
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/ahmad-nasir-/) ku ya.
 
